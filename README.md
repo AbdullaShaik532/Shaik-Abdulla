@@ -1,2 +1,0 @@
-# Shaik-Abdulla
-Batch10
